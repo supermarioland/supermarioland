@@ -1,5 +1,5 @@
 <p align="center">
-found this cute hobo! should i keep him?? <a href="https://github.com/elmmstreet">@elkmmstreet</a>
+found this cute hobo! should i keep him?? <a href="https://github.com/elmmstreet">@elmmstreet</a>
 </p>
 
 
