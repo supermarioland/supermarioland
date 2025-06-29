@@ -11,6 +11,10 @@ found this cute hobo! should i keep him?? <a href="https://github.com/elmmstreet
 
 
 
+
+https://github.com/user-attachments/assets/48174f26-0d27-4283-85a8-08667340b944
+
+
 https://github.com/user-attachments/assets/fbaac7af-c9b3-4518-88b4-29d12c395ff6
 
 
