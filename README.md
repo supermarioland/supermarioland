@@ -11,7 +11,9 @@ found this cute hobo! should i keep him?? <a href="https://github.com/elmmstreet
 </p>
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/ad7100be-fa44-4bb2-a854-f803cb9339da" alt="Centered image" />
+  <img src="https://files.catbox.moe/dfc0qj.webp" alt="Centered image" />
 </p>
+
+
 
 
