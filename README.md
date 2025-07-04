@@ -1,7 +1,7 @@
 
 
 <p align="center">
-draw on straw & sign ata!! <a href="https://github.com/elmmstreet"a>
+send me stuff & sign ata!! <a href="https://github.com/elmmstreet"a>
 </p>
 
 <p align="center">
