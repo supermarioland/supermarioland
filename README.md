@@ -1,7 +1,7 @@
 
 
 <p align="center">
-found this cute hobo! should i keep him?? <a href="https://github.com/elmmstreet"a>
+draw on straw & sign ata!! <a href="https://github.com/elmmstreet"a>
 </p>
 
 <p align="center">
