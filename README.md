@@ -1,9 +1,18 @@
-
 <p align="center">
-send me stuff & sign ata!! <a href="https://github.com/elmmstreet"a>
+  <img src="https://files.catbox.moe/eultlo.webp" />
 </p>
 
 <p align="center">
-  <img src="https://files.catbox.moe/eultlo.webp" alt="Centered image" />
-</p>
-
+<p align="center">
+i'm pretty socially awkward bare w me backflips
+  </p>
+   
+  
+  <p align="center">
+i like horrorbrews & flashgames blehh
+  </p>
+    <p align="center">
+https://youtu.be/ZH1ElYxzbqU  </p>
+      <p align="center">
+      </p>
+      
