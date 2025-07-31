@@ -8,3 +8,6 @@ send me stuff & sign ata!! <a href="https://github.com/elmmstreet"a>
 </p>
 
 
+
+https://github.com/user-attachments/assets/43138d1f-b316-43cf-b40e-727e2362a0ec
+
