@@ -20,8 +20,6 @@ https://youtu.be/ZH1ElYxzbqU  </p>
       <p align="center">
       </p>
 
-https://github.com/user-attachments/assets/29a0b676-02ed-4e4e-a2c0-f103191a2cb0
-
 
 
 
