@@ -21,7 +21,7 @@ https://youtu.be/ZH1ElYxzbqU  </p>
       </p>
 
 <p align="center">
-  <img src="https://files.catbox.moe/kv9rcx.gif" />
+  <img src="https://files.catbox.moe/qvnzb7.gif" />
 </p>
 
 
