@@ -11,7 +11,7 @@
 <div id="header" align="center">
 
 
-##### [alt acc](https://github.com/insertplayer2)
+##### [guns.lol](https://guns.lol/devilmario)
 
 
 
