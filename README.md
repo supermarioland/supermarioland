@@ -10,8 +10,8 @@
 
 <div id="header" align="center">
 
-<p align="center"> <sub>i'm pretty socially awkward bare w me backflips</sub>
-<p align="center"> <sub>i like horrorbrews & flashgames blehh</sub>
+
+##### [alt acc](https://github.com/insertplayer2)
 
 
 
