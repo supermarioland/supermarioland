@@ -13,6 +13,7 @@
 ##### [guns.lol](https://guns.lol/devilmario)
 
 
+<img width="638" height="87" alt="image" src="https://github.com/user-attachments/assets/9bf2fe24-8772-4403-90d5-0e6bf45f288a" />
 
 
     
