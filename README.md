@@ -10,7 +10,8 @@
 <div id="header" align="center">
 
 
-##### [guns.lol](https://guns.lol/devilmario)
+##### [alt acc](https://github.com/insertplayer2)
+
 
 
 
