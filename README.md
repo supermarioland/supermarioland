@@ -4,7 +4,7 @@
 
 <div id="header" align="center">
 <p align="center">
-  <img src="https://files.catbox.moe/qx3ruu.webp" />
+  <img src="https://litter.catbox.moe/cg54p523dvk3g2z3.gif" />
 </p>
 
 <div id="header" align="center">
