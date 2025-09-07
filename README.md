@@ -9,7 +9,7 @@
 
 <div id="header" align="center">
 
-![](https://files.catbox.moe/ggpqvw.webp) ![](https://files.catbox.moe/kbuk23.webp)
+![](https://64.media.tumblr.com/fc431824ee9beed67eacce3079f4dc8d/2f692b49f9b891fe-7d/s250x400/321eab5b2f89b5b376d47ccebf19e1044f4be6b6.pnj)
 
 ##### [alt acc](https://github.com/insertplayer2)
 
