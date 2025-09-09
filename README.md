@@ -4,12 +4,10 @@
 
 <div id="header" align="center">
 <p align="center">
-<img src="https://files.catbox.moe/qx3ruu.webp" />
+<img src="https://files.catbox.moe/pjba25.gif" />
 </p>
 
 <div id="header" align="center">
-
-![](https://64.media.tumblr.com/fc431824ee9beed67eacce3079f4dc8d/2f692b49f9b891fe-7d/s250x400/321eab5b2f89b5b376d47ccebf19e1044f4be6b6.pnj)
 
 ##### [alt acc](https://github.com/insertplayer2)
 
