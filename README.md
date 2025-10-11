@@ -2,11 +2,6 @@
   
 ![](https://komarev.com/ghpvc/?username=superbadmario&color=DA1308&label=HAWHAWHAW!)
 
-<div id="header" align="center">
-<p align="center">
-<img src="https://files.catbox.moe/1gt1fd.gif" />
-</p>
-
 
 <div id="header" align="center">
 
