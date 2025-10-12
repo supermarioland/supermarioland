@@ -4,7 +4,7 @@
 
 ![](https://files.catbox.moe/uue0tl.png)
 
-##### <p align="center">  mario & horrorbrew lover </p>
+##### <p align="center">  mario & horrorbrew pilled </p>
 
 ##### [ata](https://devilmario.atabook.org/) ‎ ‎  ‎ **.** ‎ ‎  ‎ [rentry](https://rentry.co/promomario)   
 
