@@ -6,7 +6,7 @@
 
 ##### <p align="center">  mario & horrorbrew lover </p>
 
-##### [ata](https://devilmario.atabook.org/) ‎ ‎  ‎ **|** ‎ ‎  ‎ [rentry](https://rentry.co/promomario)   
+##### [ata](https://devilmario.atabook.org/) ‎ ‎  ‎ **.** ‎ ‎  ‎ [rentry](https://rentry.co/promomario)   
 
 <div align="center">
   
