@@ -2,7 +2,7 @@
   
 ![](https://komarev.com/ghpvc/?username=supermarioland&color=DA1308&label=yahoo!)
 
-![](https://files.catbox.moe/w6tqh4.png)
+![](https://files.catbox.moe/tynbpm.png)
 
 
 ##### <p align="center">  mario & horrorbrew pilled </p>
