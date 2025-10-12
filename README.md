@@ -1,6 +1,6 @@
 <div id="header" align="center">
   
-![](https://komarev.com/ghpvc/?username=supermarioland&color=DA1308&label=yahoo!)
+![](https://komarev.com/ghpvc/?username=supermarioland&color=B43120&label=yahoo!)
 
 ![](https://files.catbox.moe/tynbpm.png)
 
@@ -12,7 +12,7 @@
 
 <div align="center">
   
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31tun4g3oquqldxlem2ytxhgji44&cover_image=true&theme=natemoo-re&show_offline=false&background_color=DA1308&interchange=true&bar_color=DA1308&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31tun4g3oquqldxlem2ytxhgji44&cover_image=true&theme=natemoo-re&show_offline=false&background_color=B43120&interchange=true&bar_color=B43120&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
 
