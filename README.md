@@ -1,6 +1,6 @@
 <div id="header" align="center">
   
-![](https://komarev.com/ghpvc/?username=supermarioland&color=B43120&label=yahoo!)
+![](https://komarev.com/ghpvc/?username=supermarioland&color=BEA5C5&label=yahoo!)
 
 ![](https://files.catbox.moe/ah6wc5.webp)
 
