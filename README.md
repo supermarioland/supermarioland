@@ -6,10 +6,7 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31tun4g3oquqldxlem2ytxhgji44&cover_image=true&theme=natemoo-re&show_offline=false&background_color=FFFFFF&interchange=true&bar_color=FFFFFF&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-<p align="center"> <sub>the clown server <333<sub> </p>
-
-<img width="407" height="397" alt="SF" src="https://github.com/user-attachments/assets/2ee49471-272c-47cb-84d0-6a3c531932df" />
-
+<p align="center"> <sub>the clown server >>>><sub> </p>
 
 
 
