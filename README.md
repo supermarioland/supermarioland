@@ -6,7 +6,7 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31tun4g3oquqldxlem2ytxhgji44&cover_image=true&theme=natemoo-re&show_offline=false&background_color=FFFFFF&interchange=true&bar_color=FFFFFF&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-<p align="center"> <sub>the clown server >>>><sub> </p>
+<p align="center"> <sub>the clown university >>>><sub> </p>
 
 
 
